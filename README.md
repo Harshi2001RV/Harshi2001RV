@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Harshi2001RV
 - 👀 I’m interested in Developing App and networking passionate 
-- 🌱 I’m currently learning in cloud and scrum master
+- 🌱 I’m currently learning in cloud technologies
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me 91-9944155530
 
